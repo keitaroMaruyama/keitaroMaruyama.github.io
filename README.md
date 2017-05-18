@@ -1,2 +1,1 @@
-# keitaroMaruyama.github.io
-# keitaroMaruyama.github.io
+# keitaro-Maruyama.github.io
